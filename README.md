@@ -1,2 +1,10 @@
 # boumanggz-slave-route
+
 1990-2021
+
+
+# boumanggz
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
+# slavery
+https://en.wikipedia.org/wiki/Slavery
